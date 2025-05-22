@@ -14,8 +14,8 @@ Favorite Topics: game development, data science, etc.
 
 💌 Reach out via https://t.me/PS_Hacker.
 
-✨ "Work Hard 😠
-    Dream Big 😊
-    Never Giveup 🙂"
+✨ "Work Hard 
+    Dream Big 
+    Never Giveup "
     
-    By Ritik Mishra Sir (PW)
+
