@@ -12,7 +12,7 @@ Languages: Python, JavaScript, etc.
 Favorite Topics: game development, data science, etc.
 📫 Get in Touch:
 
-💌 Reach out via https://t.me/PS_Hacker.
+💌 Reach out via https://t.me/PS_Hackerz.
 
 ✨ "Work Hard 
     Dream Big 
